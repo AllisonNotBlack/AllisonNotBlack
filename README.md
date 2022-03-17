@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on literally nothing I'm useless.
 - 📫 How to reach me:
 @MQXOMusic on Twitter
-@MQXO#6513 on Discord
+@MQXO#1293 on Discord
